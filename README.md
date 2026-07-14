@@ -1,0 +1,1 @@
+# jodogyan-email-assets
